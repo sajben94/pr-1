@@ -1,1 +1,1 @@
-# Moja **záverečná** ~~práca~~ :D
+# Moja záverečná práca :D
